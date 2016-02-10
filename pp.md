@@ -10,5 +10,4 @@ Agregado por CDRR
 Agregado por Holcan
 abuelita de batman
 
-a bolillo
-
+Rey Skywalker
