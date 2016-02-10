@@ -10,4 +10,12 @@ Agregado por CDRR
 Agregado por Holcan
 abuelita de batman
 
+<<<<<<< HEAD
 Rey Skywalker
+=======
+a bolillo
+
+AoT AoM AoE, Age, Age, Age
+>>>>>>> bfded0ca8a8febc14821d741d3245973b79407a7
+
+PROSTAGMA!
