@@ -20,3 +20,14 @@ AoT AoM AoE, Age, Age, Age
 El faraón baila bien chido
 
 PROSTAGMA!
+
+probando desde el recien instalado ubuntu
+
+chi
+
+la hamburguesa del macdo no estuv tan mal
+
+pinche obesidad mórbida
+
+
+
